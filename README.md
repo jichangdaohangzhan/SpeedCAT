@@ -10,7 +10,7 @@
 
 **访问官网**：点击下方链接进入
 
-[ **SpeedCAT闪电猫机场官方地址入口1**](https://flafflnk01.flaff9.cc/auth/register?code=xF3nYSWz)
+[ **SpeedCAT闪电猫机场官方地址入口1**](https://webinv02.sc-aff.cc/auth/register?code=YUhKNcr1)
 
 
 
